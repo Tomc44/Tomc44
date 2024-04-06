@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tomc44 or Tom.C
-- 👀 I’m interested in trying outt new things
+- 👀 I’m interested in trying out new things
 - 🌱 I’m currently learning computer engineering
 - 🦋 Designing is passion
 
